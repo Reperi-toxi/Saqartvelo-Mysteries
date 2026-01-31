@@ -8,4 +8,4 @@ Game source folder: https://kiuge-my.sharepoint.com/:u:/g/personal/cheishvili_gi
 
 Game packaged folder: https://kiuge-my.sharepoint.com/:u:/g/personal/cheishvili_giorgi_kiu_edu_ge/IQDvJO4k2pHzSr2jUJwUck2xAThIN72zCKrEUU93L0qIeHk?e=TgJkse
 
-![Uploading 2026-01-3115-15-58online-video-cutter.com-ezgif.com-video-to-gif-converter (1).gif…]()
+![2026-01-3115-15-58online-video-cutter com-ezgif com-video-to-gif-converter (1)](https://github.com/user-attachments/assets/0972ebff-125c-436d-bb33-45366190e448)
