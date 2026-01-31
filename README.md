@@ -6,4 +6,4 @@ Player navigates a compact world where puzzles are influenced by cultural elemen
 # Content
 Game source folder: https://kiuge-my.sharepoint.com/:u:/g/personal/cheishvili_giorgi_kiu_edu_ge/IQDEkqCoHeMJT5pjfC5XRQXFAaKYHn3Wt4RNZpRdTvRX9Z0?e=x7ixXg
 Game packaged folder: https://kiuge-my.sharepoint.com/:u:/g/personal/cheishvili_giorgi_kiu_edu_ge/IQDvJO4k2pHzSr2jUJwUck2xAThIN72zCKrEUU93L0qIeHk?e=TgJkse
-"C:\Users\GIGI\Downloads\2026-01-3115-15-58online-video-cutter.com-ezgif.com-video-to-gif-converter.gif"
+![Uploading 2026-01-3115-15-58online-video-cutter.com-ezgif.com-video-to-gif-converter (1).gif…]()
